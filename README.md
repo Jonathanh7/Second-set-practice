@@ -1,2 +1,4 @@
 # Second-set-practice
-## Addition edits for commits
+## OHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
+
+Gohan should have been the one to end Dragon Ball Z. CHANGE MY MIND.
