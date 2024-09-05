@@ -1,2 +1,2 @@
 # Second-set-practice
-## Addition edits for commits
+## life is beautiful
